@@ -11,3 +11,5 @@
 | 15-07-2024 | Dr. Pyare Lal | Dr. Garg told us important things. |
 | 15-07-2024 | Mr. Sony Goyal | Mr. Goyal told us the Mantra's of success which will help us to be successful in our life. |
 | 16-07-2024 | Er. Ranjodh Kaur and Er. Jaskiran Kaur | They introducted us to IT department, it's labs & library and faculty. |
+| 17-07-2024 | Prof. Rishi Kapoor | Sir taught us about understanding Harmony in Family and Human values of education and professional ethics. |
+| 17-07-2024 | Mr.Arsh and Mr. Taranjeet Singh | They introduced us to excel and chatgpt and how to use these. |
